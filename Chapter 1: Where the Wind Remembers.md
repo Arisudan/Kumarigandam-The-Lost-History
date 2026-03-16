@@ -9,22 +9,58 @@ In the mornings, the village woke up slowly. The fishermen pushed their boats in
 And somewhere among those children, years ago, five friends began a story that none of them yet understood.
 
 ---
+Harish had always been the curious one.
+Even as a child, he was the boy who asked questions no one else thought to ask.
+Why did the sea glow sometimes at night?
+Why did old fishermen speak about places that were no longer on any map?
+Why did the ruins of Dhanushkodi still feel alive?
+His house stood near the edge of the village, where the sand slowly turned into wild grass and broken stone. From his window he could see the endless blue of the ocean.
+Some evenings, he would sit quietly with a notebook in his hand.
+Not writing.
+Just thinking.
+Because the sea always seemed like it was trying to tell him something.
 
-### The Five Friends
+If Harish wondered about mysteries, Sharan wanted to build something that could solve them.
+As a boy he spent hours taking apart broken radios, old boat motors, and anything mechanical he could find. His small room was always full of wires, screws, batteries, and half-finished inventions.
+The other villagers sometimes laughed.
+“Sharan will one day build a machine to talk to the ocean,” they joked.
+Sharan would simply smile.
+Because secretly, he liked the idea.
 
-**Harish** had always been the curious one. Even as a child, he was the boy who asked questions no one else thought to ask. Why did the sea glow sometimes at night? Why did old fishermen speak about places that were no longer on any map? Why did the ruins of Dhanushkodi still feel alive? His house stood near the edge of the village, where the sand slowly turned into wild grass and broken stone.
 
-**Sharan**, on the other hand, believed in answers. Real answers. Machines. Maps. Logic. If Harish wondered about mysteries, Sharan wanted to build something that could solve them. As a boy, he spent hours taking apart broken radios and old boat motors. The other villagers joked: “Sharan will one day build a machine to talk to the ocean.”
+Abinaya loved stories.
+Not the kind told in movies or television.
+She loved the stories written in books older than anyone in the village. Palm-leaf manuscripts in the temple library. Ancient Tamil poems about kings, oceans, and lands that had disappeared beneath the waves.
+While other children played outside, Abinaya often sat under the shade of an old neem tree, reading quietly.
+Her voice was soft.
+But when she spoke about history, something bright lit up in her eyes.
+She believed the past was not dead.
+Only hidden.
 
-**Abinaya** loved stories. Not the kind told in movies, but the stories written in books older than anyone in the village—palm-leaf manuscripts about ancient Tamil poems and lands that had disappeared beneath the waves. She believed the past was not dead. Only hidden.
 
-**Keerthi** was the opposite of quiet. Where the others observed and studied, Keerthi acted. She climbed rocks, raced boys across sandbanks, and dived fearlessly into the waves. If adventure existed anywhere in Dhanushkodi, Keerthi was usually already there.
+Keerthi was the opposite of quiet.
+Where the others observed and studied, Keerthi acted.
+She climbed rocks near the shore. Raced the boys across the sandbanks. Dived fearlessly into the shallow waters even when the waves were rough.
+If adventure existed anywhere in Dhanushkodi, Keerthi was usually already there.
+But beneath her bold laughter was something deeper.
+She loved the ocean as much as anyone.
+Maybe more.
 
-**Joseph** was older than all of them. At twenty-seven, he was known as a skilled sailor. He could read the movement of waves like others read books. But Joseph didn't just fish; he collected pieces of a puzzle—old shipwrecks, strange objects caught in nets, and oral histories.
+
+And then there was Joseph.
+Joseph was older than all of them.
+Five years older than Harish and the others.
+When the four of them were still children chasing crabs along the beach, Joseph was already learning the sea the way fishermen had learned it for centuries.
+By watching. By listening. By respecting it.
+At twenty-seven, Joseph was known across the coastal villages as a skilled sailor. He could read the movement of waves like others read books. He knew where fish gathered, where currents shifted, and where storms would rise before the clouds even appeared.
+But what made Joseph different was something else.
+He did not only fish the sea. He studied it. 
+Old shipwrecks.
+Strange objects caught in nets.
+Stories told by elderly fishermen.
+Joseph collected them all like pieces of a puzzle.
 
 ---
-
-### The Legend of Kumarikaṇdam
 
 The five of them had grown up together, brought together by the sea. Evenings often ended with all five sitting on the sand near the old railway station ruins.
 
@@ -43,8 +79,6 @@ Abinaya turned the page carefully. The name was written in bold ancient script: 
 The wind blew stronger that evening. None of them spoke for a while. The ocean stretched endlessly before them—dark, quiet, and mysterious.
 
 ---
-
-### The Discovery
 
 Years passed. The children grew older, but their curiosity remained. 
 
