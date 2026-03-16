@@ -1,109 +1,135 @@
-# Chapter 6: The Book of the Sea
+# Chapter 6: The Secret Written in Light
 
-The underground library felt heavier with silence now. The map fragment, the ancient manuscript, and the glowing Maragatham gemstone rested on the stone table like pieces of a puzzle waiting to be solved.
+The underground library remained silent after the priest finished speaking. On the stone table lay three things that had suddenly become more important than anything else in the world.
 
-Harish turned the gemstone slowly in his hand. The emerald surface reflected the lantern light in deep green waves. Joseph stood beside him, still thinking about the island marked on the torn map. Sharan leaned against the table, arms crossed, studying the gemstone carefully.
+The Maragatham gemstone.
+The map fragment.
+And the ancient manuscript describing Athiyan’s final message.
 
-“Something still feels incomplete,” he said.
+The lantern flame flickered gently, casting shifting light across the room. Harish picked up the gemstone again. For a moment he simply stared at it. The emerald glow seemed deeper now… almost alive.
 
-Abinaya nodded. “We know this was Athiyan’s final message to Mathi.” She looked at the stone again. “But if he hid the history of his people… there must be more clues.”
+“Strange,” he murmured.
 
-Keerthi tilted her head. “Maybe the stone itself is hiding something.”
+Sharan looked up. “What is?”
 
-Joseph smiled slightly. “Good thought.” He reached for the lantern and brought it closer to the gemstone. The bright flame illuminated the carved message again.
+Harish turned the stone slightly toward the lantern. The green surface caught the light differently now that most of the sea sediment had been removed. A thin ray of light passed through the edge of the gem. And suddenly—
 
-*For you, my love.*
+Abinaya leaned forward. “Wait.”
 
-The words felt softer now… but deeper. Joseph slowly rotated the stone. Light moved across its surface. Then suddenly—Sharan leaned forward.
+Everyone froze. “What did you see?” Keerthi asked.
 
-“Wait.”
+Abinaya carefully took the gemstone from Harish. She moved it slowly under the lantern flame. The emerald surface shimmered again. Then something unexpected appeared. Very faint. Very thin.
 
-Everyone froze. “What?” Harish asked.
+**Another line of carving. Not on the surface, but inside the gemstone itself.**
 
-Sharan pointed to the stone. “There… near the edge.”
+Sharan’s eyes widened. “That’s impossible.”
 
-Joseph tilted the lantern slightly. The green light shifted. And something faint appeared along the side of the gemstone. **Tiny markings. Barely visible.**
+Joseph leaned closer. “No… look carefully.”
 
-Abinaya gasped. “There’s another inscription!”
+The gemstone was translucent enough for light to pass through it. When the lantern’s beam struck it at the right angle, a hidden inscription became visible inside the stone. A second message—one that had remained invisible for centuries.
 
-Harish held the stone closer to the flame. The second set of carvings had been hidden perfectly within the gemstone’s surface. They were so shallow that they only became visible when light struck the stone at a certain angle.
+Abinaya carefully adjusted the angle. The words slowly became clearer. Ancient Tamil again, but written in a coded style. The priest stepped closer, his voice quiet with amazement. “A hidden inscription.”
 
-Joseph whispered in amazement. “A coded message…”
+Harish whispered, “A message inside the gemstone…”
 
-Abinaya quickly grabbed her notebook. “Let me see.” She carefully copied the faint symbols. They were again written in ancient Tamil. But this time the words were shorter. More direct. After a few moments of reading, Abinaya slowly translated them. Her voice carried both excitement and curiosity.
+Sharan grabbed his notebook quickly. “Hold it steady.”
 
-“It says…” She paused to be certain. “…‘Seek the truth in Kadalkol”
+Abinaya did exactly that while Sharan began sketching the faint letters. Joseph leaned over his shoulder. “What does it say?”
 
-The room fell quiet again. Keerthi blinked. “Kadalkol?”
+The priest began reading the words slowly. His voice echoed softly in the underground chamber. “The answers lie where the sea remembers.” He paused, adjusting his glasses. “Seek the book of ***Kadalkol***.”
 
-Joseph frowned. “That sounds like the name of a book.”
+The friends exchanged confused glances. Sharan finished writing the final symbols. “Kadalkol?”
 
-Abinaya nodded. “Yes.”
+Abinaya frowned slightly. “That sounds like a title.”
 
-The priest suddenly spoke from behind them. “It is.” Everyone turned toward him. The priest’s face had changed slightly. He looked both surprised… and thoughtful. “That name has not been spoken here for many years.”
+The priest nodded slowly. “Yes.” He seemed lost in thought for a moment. Then realization struck him. “Kadalkol…”
 
-Harish stepped forward. “You know about it?”
+Joseph noticed the change in his expression. “You know this book?”
 
-The priest nodded slowly. “Yes.” He walked toward one of the deepest sections of the underground library. “The book *Kadalkol* was said to have been written personally by King Athiyan.”
+The priest looked up. His voice carried a strange mixture of excitement and worry. “Yes.” Everyone leaned closer. “It was said to be a book personally written by King Athiyan himself.”
 
-Abinaya’s eyes widened. “For Mathi?”
+Abinaya’s eyes widened. “Athiyan wrote it?”
 
-The priest turned slightly and nodded again. “Yes.” He reached a tall wooden cabinet sealed with an old metal latch. “This book was not meant for public reading.”
+“Yes,” the priest replied. “And according to old records… it was a gift to Queen Mathi.”
 
-The priest unlocked the cabinet carefully. Inside lay a single thick book wrapped in dark cloth. Even through the cloth, it looked ancient… yet perfectly preserved. The priest carried it gently back to the stone table. “Generations of temple priests have protected this book.”
+Harish glanced again at the Maragatham stone. “A gift… like the gemstone.”
 
-Joseph spoke softly. “No one else has seen it?”
+The priest nodded. “The book was said to contain Athiyan’s final thoughts… his memories… and the history he wanted to preserve.”
 
-“Very few,” the priest replied. He slowly unwrapped the cloth. The title appeared in faded golden Tamil letters.
+Keerthi crossed her arms thoughtfully. “So where is this book now?”
 
-**Kadalkol**
+The priest fell silent. For several seconds he didn’t speak. Then he answered quietly. “Under the sea.”
 
-Abinaya whispered the translation. “The Voice of the Sea.”
+The friends stared at him. “Under the sea?” Sharan repeated.
 
-The priest opened the book carefully. Its pages were filled with dense writing. Stories. Records. Poetry. But something else stood out. Many words were underlined. Strange symbols appeared beside certain sentences. And some passages had been marked with tiny dots or lines.
+The priest nodded. “According to temple records, *Kadalkol* was lost during the fall of the southern lands.”
 
-Sharan leaned forward. “This doesn’t look like normal writing.”
+Joseph’s voice lowered. “Where exactly?”
 
-The priest nodded. “It is not.”
+The priest walked slowly to another shelf and pulled out a worn navigation chart preserved from earlier temple records. He placed it beside the map fragment. His finger pointed toward the ocean south of India. “Near the southwestern waters of Sri Lanka.”
 
-Joseph looked closer. “A code.”
+Abinaya’s eyes widened. She looked immediately at Joseph. Joseph looked back at her. Both of them were thinking the same thing. Harish noticed their expressions. “What?”
 
-Abinaya turned several pages quickly. More markings. More underlined words. Her excitement grew. “This entire book is a puzzle.”
+Joseph slowly turned toward the map fragment again. “That location…” He pointed to the small island drawn on the ancient parchment. “…matches the place we just discovered.”
 
-Keerthi crossed her arms. “What kind of puzzle?”
+Sharan’s mind raced. “The island with the forest.”
 
-The priest ran his fingers across the page. “A puzzle meant to protect knowledge.” He looked at the group. “King Athiyan knew that enemies might try to destroy his history.”
+Keerthi leaned forward. “But the priest said the book is under the sea.”
 
-Joseph nodded slowly. “So he hid it inside this book.”
+Abinaya suddenly understood. Her voice came out almost as a whisper. “What if the island… no longer exists?”
 
-“Yes,” the priest said. “The real message is hidden between the lines.”
+The room fell silent. Joseph nodded slowly. “It may have sunk.”
 
-Harish flipped through the pages. Every few paragraphs, certain words were underlined. Some symbols repeated again and again. Almost like directions. Almost like clues.
+Sharan’s eyes widened. “So the island drawn on the ancient map…”
 
-Abinaya spoke thoughtfully. “If we connect the marked words together…”
+“…could now be underwater,” Harish finished.
 
-Sharan continued her thought. “…we might reveal the real story.”
+The priest studied the map again carefully. “That would explain why modern maps do not show it.”
 
-Keerthi smiled. “Or maybe a location.”
+Joseph reached into his bag and pulled out something folded. A modern world map. He spread it across the table beside the ancient fragment. Meanwhile, Abinaya opened her notebook and carefully unfolded the old Kumarikandam reference map she had copied from the temple library earlier.
 
-Joseph tapped the map fragment on the table. “The island.”
+The two maps—ancient and modern—lay side by side. Everyone leaned over them. Joseph began aligning the coastlines. Ram Setu. Southern India. Western Sri Lanka. Sharan marked a few coordinates. Slowly, a single point began to match on both maps.
 
-The priest nodded slowly. “Yes.” He closed the book gently. “The answers you seek are inside this.”
+Joseph tapped the spot gently. “There.”
 
-Harish looked around at his friends. Excitement and determination filled the room. For the first time, the mystery felt close enough to touch. He opened the book again. “All right.” He looked at everyone. “Let’s solve it.”
+Abinaya stared at it. A small underwater ridge appeared on the modern sea-depth chart. Not visible from the surface. But not extremely deep either. Harish felt his heartbeat quicken again.
 
-Sharan pulled his notebook from his bag. “I’ll track the symbols.”
+“That depth…”
 
-Abinaya gathered the pages with underlined words. “I’ll translate the ancient language.”
+Joseph nodded. “It’s reachable.”
 
-Keerthi grabbed a small stack of parchment. “I’ll organize the sentences we find.”
+Keerthi blinked. “Reachable how?”
 
-Joseph folded his arms thoughtfully. “And I’ll try to connect it to the sea routes and landmarks.”
+Joseph smiled slightly. “With scuba gear.”
 
-The priest watched them quietly. For a moment, the underground library felt alive again. Like the ancient stories themselves were waking up after centuries of silence.
+Sharan looked between them. “Wait… you guys can dive that deep?”
 
-Harish looked down at the first marked sentence in the book. The words seemed ordinary. But together… they might reveal the truth about Athiyan, Mathi, and the lost land of Kumarigandam.
+Harish laughed quietly. “Joseph trained us years ago.”
 
-The puzzle had begun. And somewhere beyond the waves… the sea was still guarding the rest of the answer.
+Abinaya nodded. “Advanced scuba diving.”
 
-But decoding *Kadalkol* would not be easy. And the first clue hidden in its pages would lead them toward a secret none of them expected.
+Joseph added calmly, “We’ve explored reefs deeper than that.”
+
+Keerthi shook her head in disbelief. “So you’re telling me… the book written by an ancient king might be sitting at the bottom of the ocean?”
+
+Harish looked at the Maragatham gemstone again. Then at the marked location on the map. “Yes.” His voice was steady now. “And we’re going to find it.”
+
+Abinaya closed her notebook slowly. For years she had studied history through books. But now—history was waiting beneath the ocean.
+
+Joseph folded the maps carefully. “We’ll need equipment.”
+
+Sharan added, “And a strong boat.”
+
+Keerthi sighed. “I guess I’m coming too.”
+
+Harish smiled. “There was never a question about that.”
+
+The priest watched them quietly. “You must be careful,” he said. “The sea protects its secrets.”
+
+Joseph nodded respectfully. “We understand.”
+
+The lantern light flickered again as the five friends stood together around the table. The Maragatham gemstone rested quietly in the center. A message from a king. A clue from centuries ago.
+
+And now—a journey beneath the ocean had begun.
+
+Somewhere in the waters south of Sri Lanka… the lost book Kadalkol waited in silence. And perhaps within its pages—the truth about Kumarigandam itself.
