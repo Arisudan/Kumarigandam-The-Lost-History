@@ -12,7 +12,7 @@ Harish laughed softly. “Feels like we were saving them for this moment.”
 
 Soon, a small fire was lit. The warm glow of the flames danced across their faces. Harish and Keerthi sat near the fire, carefully cleaning and preparing the fish. The sound of the waves mixed with the crackling of the fire—a peaceful moment after everything they had been through.
 
-Inside the tent, Abinaya sat quietly. The **Kadalkol** book rested in her hands. She slowly opened it. The pages were old, yet perfectly preserved. Her eyes moved carefully across the lines. Some words were simple, clear, and understandable. But many parts were strange. Certain lines were underlined. Symbols repeated. Phrases did not fully make sense at first glance.
+Inside the tent, Abinaya sat quietly. The Kadalkol book rested in her hands. She slowly opened it. The pages were old, yet perfectly preserved. Her eyes moved carefully across the lines. Some words were simple, clear, and understandable. But many parts were strange. Certain lines were underlined. Symbols repeated. Phrases did not fully make sense at first glance.
 
 Abinaya leaned closer. “This isn’t just a book…” she whispered to herself. “It’s a puzzle.”
 
